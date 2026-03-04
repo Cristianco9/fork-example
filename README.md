@@ -30,4 +30,6 @@ BASEME HABAJUWE Samuel: **basemehabajuwe**
 
 SUGIRA: **sugira2730**
 
+Nhial Cham: **nhial-cham**
+
 MULIRI SHEBIRONGO Jonathan: **joshebirongo**
